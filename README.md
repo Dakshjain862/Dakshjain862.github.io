@@ -13,3 +13,7 @@
 | Date| speaker |description|
 | ----------- | ----------- | -----|
 |16 july 2024| Er. jasvir singh Grewal|jasvir singh grewal coordinator of NSS (National Seva Scheme) gave full information of NSS that in this we organize different campus life tree planting, blood donation etc, also told how to save environment.
+
+| Date| speaker |description|
+| ----------- | ----------- | -----|
+| 19 july 2024| Er. kanwardeep kalra| kanwardeep kalra mam had valuable session in our college.Mam told us about us about skills to get slected in big MNC. Then they told us about soft skills like time management, good communication etc. Then also told us not not give up and do hardwork and shoul smile everytime and then told us to speak confidentially . I really enjoyed the session 
