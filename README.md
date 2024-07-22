@@ -23,4 +23,7 @@
 
 | Date | speaker |Description|
 | ----------- | ----------- |----|
-| 22 july 2024| Dr. S.B Singh|Today's speaker had a very interactive session started his session by writing us on paper about our whole information and different things and also dream that helped to look inside us and what we do achieve our session that helped so much how to complete our dreams and live life peacefully.
+| 22 july 2024| Dr. S.B Singh|Today's speaker had a very interactive session started his session by writing us on paper about our whole information and different things and also dream that helped to look inside us and what we do achieve our session that helped so much how to complete our dreams and live life peacefully.They also told to stay tension free and to do work with full presence of mind.
+| Date | speaker |Description|
+| ----------- | ----------- |----|
+| 22 July 2024  | Dr. Puspinder Singh | The sir was invited to our college and gaved their precious time to us. The session was very valuable and helped to learn different things. They first told us everyone has different learning skills so we should as we are suitable with They also told different stories That was very interesting and gave very useful information and helped us to learn different things that will help in our whole life . The session was very  interesting and valuable 
