@@ -22,5 +22,5 @@
 | 19 july 2024| jaswinder singh| The sir was invited to our college to tell us about effective studies. Then told us different easy ways to learn easily like how to count bones in our body etc . Then performed different experiments that helped to remember the topic and to understand the concept behind and told to learn topics by understanding. This was very interactive and interesting session also maked us laugh but helped to learn different topics and things.
 
 | Date | speaker |
-| ----------- | ----------- |
+| ----------- | ----------- |----|
 | 22 july 2024| Dr. S.B Singh|Today's speaker had a very interactive session started his session by writing us on paper about our whole information and different things and also dream that helped to look inside us and what we do achieve our session that helped so much how to complete our dreams and live life peacefully.
