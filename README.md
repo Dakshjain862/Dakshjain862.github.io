@@ -7,7 +7,7 @@
 | Date | speaker |Description|
 | ----------| ------------- |------|
 | 16 july 2024 | pr Harpal singh pannu| pr harpal singh pannu was invited to school to tell us valuable knowledge they told about there biography and how they gain knowledge and became successful person they told different teaching of different guru's. This lesson gave me to learn different things. 
-| Date| Speaker |Description 
+| Date| Speaker |Description |
 | ----------- | ----------- |----|
 | 16 July 2024| Dr Harwinder singh| dr harwinder singh was officer of NCC (National Cadet Corps) who gave us full information about NCC and also told the benifits of joining NCC . they told us other benefits like coping with stress , self awareness etc . They organised different campus . then they told us benefits of scholarship.
 | Date| speaker |Description|
