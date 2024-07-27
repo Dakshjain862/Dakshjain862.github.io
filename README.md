@@ -24,4 +24,8 @@
 | ----------- | ----------- |----|
 | 22 July 2024  | Dr. Puspinder Singh | The sir was invited to our college and gaved their precious time to us. The session was very valuable and helped to learn different things. They first told us everyone has different learning skills so we should as we are suitable with They also told different stories That was very interesting and gave very useful information and helped us to learn different things that will help in our whole life . The session was very  interesting and valuable 
 
-![Daksh jain]("C:\Users\Dell\Documents\Daksh Jain.pdf")
+![]("C:\Users\Dell\Documents\Daksh Jain.pdf")
+
+![alt text
+
+![alt text](Daksh Jain.pdf)
